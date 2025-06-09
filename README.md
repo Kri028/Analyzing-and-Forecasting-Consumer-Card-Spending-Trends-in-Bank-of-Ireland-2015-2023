@@ -1,0 +1,1 @@
+# Analyzing-and-Forecasting-Consumer-Card-Spending-Trends-in-Bank-of-Ireland-2015-2023
